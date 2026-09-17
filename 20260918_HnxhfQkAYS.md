@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-09-18 04:14:51<br>櫴蔳拋玞顈靆耭珥荦瞉巁学遏嗜鳼慉徬櫍荄钖犥栽儥諝隓諲丒粣冓纶举骲叵爻揫修舥鯢遝死磃甉泱蓗埀凧岊芳雲漻姁鄸銚柹吩倓穑筊莯傈<br>
+75.OPPO Find X8 系列迭代，马里亚纳影像芯片、AI 优化，高端市场发力。<a href="https://www.bjsyqw.com/jiaoyu/429020.shtml?id=2480">www.bjsyqw.com/jiaoyu/429020.shtml?id=2480</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180349915.html?id=3938">www.pconline.com.cn/special/holiday/2026/0915/2180349915.html?id=3938</a><br><br>
+17.东方电气风电整机迭代，海上 + 陆上双驱动，国企订单增长。<a href="https://www.hj.cn/content/2026-09/17/content_74283.html?id=8392">www.hj.cn/content/2026-09/17/content_74283.html?id=8392</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202609/17/content_39332.html">xyrb.hj.cn/pc/con/202609/17/content_39332.html</a><br><br>
+06.vivo X200 系列发布，自研 V3 芯片、AI 影像、性能升级，销量增长。<a href="https://mini.eastday.com/nsa/1001060549608492388130.html?id=3378">mini.eastday.com/nsa/1001060549608492388130.html?id=3378</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202609/17/content_98868.html">xyrb.hj.cn/pc/con/202609/17/content_98868.html</a><br><br>
+20.航空客运票价回归合理区间，民航出行客流稳步恢复常态。<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_4077.html?id=0233">www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_4077.html?id=0233</a><br><br>
+<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/20061.html">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/20061.html</a><br><br>
+09.韦尔股份 CMOS 图像传感器市占率提升，手机、车载双驱动。<a href="https://m.hj.cn/content/2026-09/17/content_69340.html?id=2257">m.hj.cn/content/2026-09/17/content_69340.html?id=2257</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_29015.htm">epaper.632news.com/zzwb/html/2026-09/17/content_29015.htm</a><br><br>
+80.5 月 20 日现货黄金突破 4490 美元 / 盎司，日内小幅上行，避险需求持续升温。<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_45475.html?id=4424">news.sjzdaily.com.cn/2026/09/17/wap_45475.html?id=4424</a><br><br>
+<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_78664.html?id=9180">news.sjzdaily.com.cn/2026/09/17/wap_78664.html?id=9180</a><br><br>
+00.婚礼婚庆行业全面回暖，婚嫁相关消费市场迎来高峰期。<a href="https://mini.eastday.com/nsa/8027776827842043168194.html">mini.eastday.com/nsa/8027776827842043168194.html</a><br><br>
+<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_29204.html?id=5401">news.sjzdaily.com.cn/2026/09/17/wap_29204.html?id=5401</a><br><br>
+46.柔性智能穿戴手环上新，贴合人体佩戴兼具多项健康监测。<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_68662.html">news.sjzdaily.com.cn/2026/09/17/wap_68662.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180796830.html">www.pconline.com.cn/special/holiday/2026/0915/2180796830.html</a><br><br>
+00.小模型专用化趋势<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_95455_79858002.htm?id=6063">bjrb.bjsyqw.com/html/2026-09/17/content_95455_79858002.htm?id=6063</a><br><br>
+<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_59465_13557154.htm">bjrb.bjsyqw.com/html/2026-09/17/content_59465_13557154.htm</a><br><br>
+10.三星 Galaxy Z Fold6 迭代，轻薄化、AI 优化，全球折叠市场主导。<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_36894.htm?id=5128">epaper.632news.com/zzwb/html/2026-09/17/content_36894.htm?id=5128</a><br><br>
+<a href="https://auto.eastday.com/a/n260914024429536.html?id=8716">auto.eastday.com/a/n260914024429536.html?id=8716</a><br><br>
+38.防火智能预警设备进楼栋，提早察觉火情隐患守护居住安全。<a href="https://www.bjsyqw.com/jiaoyu/616434.shtml?id=1971">www.bjsyqw.com/jiaoyu/616434.shtml?id=1971</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/877756.shtml">www.bjsyqw.com/jiaoyu/877756.shtml</a><br><br>
+31.开源模型推理成本继续下降<a href="https://m.hj.cn/content/2026-09/17/content_69340.html">m.hj.cn/content/2026-09/17/content_69340.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_5120.html">www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_5120.html</a><br><br>
+58.量子通信干线扩容，京沪、广深干线加密，安全性进一步提升。<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_57227.html">news.sjzdaily.com.cn/2026/09/17/wap_57227.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180927418.html?id=4579">www.pconline.com.cn/special/holiday/2026/0915/2180927418.html?id=4579</a><br><br>
+24.天融信 AI 安全运营平台升级，自动化处置能力增强，运营成本下降。<a href="https://www.bjsyqw.com/jiaoyu/695897.shtml">www.bjsyqw.com/jiaoyu/695897.shtml</a><br><br>
+<a href="https://auto.eastday.com/a/n260914040300416.html">auto.eastday.com/a/n260914040300416.html</a><br><br>
+93.大模型工具链本周观察<a href="https://auto.eastday.com/a/n260914180728513.html?id=4284">auto.eastday.com/a/n260914180728513.html?id=4284</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180602084.html">www.pconline.com.cn/special/holiday/2026/0915/2180602084.html</a><br><br>
+04.地方专项债加速发行，助力基建项目开工，稳投资力度持续加大。<a href="http://www.sjzdaily.com.cn/2026/09/17/11564.html?id=5475">www.sjzdaily.com.cn/2026/09/17/11564.html?id=5475</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0915/7818208.html">g.pconline.com.cn/nq/2026/0915/7818208.html</a><br><br>
+22.科大国盾量子密钥分发设备迭代，加密效率提升、稳定性增强。<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_67408.html?id=4520">news.sjzdaily.com.cn/2026/09/17/wap_67408.html?id=4520</a><br><br>
+<a href="https://mini.eastday.com/nsa/8679185750842055157906.html?id=6750">mini.eastday.com/nsa/8679185750842055157906.html?id=6750</a><br><br>
+36.百行征信 AI 风控系统商用，个人 / 企业信用评估，金融机构合作增加。<a href="http://www.sjzdaily.com.cn/2026/09/17/63041.html">www.sjzdaily.com.cn/2026/09/17/63041.html</a><br><br>
+<a href="https://m.hj.cn/content/2026-09/17/content_93829.html">m.hj.cn/content/2026-09/17/content_93829.html</a><br><br>
+49.钙钛矿电池效率突破 27%，南开大学团队成果发表《自然》。<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_5393.html?id=9319">www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_5393.html?id=9319</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_79815.htm">epaper.632news.com/zzwb/html/2026-09/17/content_79815.htm</a><br><br>
+11.碳中和债发行提速，新能源、储能、光伏项目融资，利率优惠。<a href="https://www.hj.cn/content/2026-09/17/content_67226.html?id=0584">www.hj.cn/content/2026-09/17/content_67226.html?id=0584</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0915/5179409.html">g.pconline.com.cn/nq/2026/0915/5179409.html</a><br><br>
+51.工业芯片需求增长，PLC、传感器芯片国产化率提升，自主可控加速。<a href="https://mobile.pconline.com.cn/open/0915/9596502.html">mobile.pconline.com.cn/open/0915/9596502.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260914010931342.html?id=0555">auto.eastday.com/a/n260914010931342.html?id=0555</a><br><br>
+19.国内分布式光伏爆发，户用、工商业装机量激增，政策支持。<a href="https://auto.eastday.com/a/n260914093119411.html">auto.eastday.com/a/n260914093119411.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180703881.html">www.pconline.com.cn/special/holiday/2026/0915/2180703881.html</a><br><br>
+58.再生能源智能调度系统上线，统筹调配风光储各类清洁能源。<a href="https://m.hj.cn/content/2026-09/17/content_19845.html?id=1725">m.hj.cn/content/2026-09/17/content_19845.html?id=1725</a><br><br>
+<a href="https://product.pconline.com.cn/itbk/software/2026/0915/4245392.html?id=6783">product.pconline.com.cn/itbk/software/2026/0915/4245392.html?id=6783</a><br><br>
+43.中兴微 5G 基带芯片商用，通信 + AI 融合，工业、车载场景拓展。<a href="https://video.eastday.com/a/f260914010925421204945.html">video.eastday.com/a/f260914010925421204945.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0915/9096784.html?id=2302">mobile.pconline.com.cn/open/0915/9096784.html?id=2302</a><br><br>
+02.东方日升 HJT 电池量产，效率 26%，组件出口欧洲、拉美市场。<a href="https://rb.bjsyqw.com/html/2026-09/17/content_75252_28875418.htm">rb.bjsyqw.com/html/2026-09/17/content_75252_28875418.htm</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_3897.html">www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_3897.html</a><br><br>
+79.三星 S24 系列 AI 手机热销，Galaxy AI 2.0 赋能，全球份额稳定。<a href="https://www.bjsyqw.com/jiaoyu/676805.shtml?id=5167">www.bjsyqw.com/jiaoyu/676805.shtml?id=5167</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0917/9134370.shtml?id=3842">news.bjsyqw.com/2026/0917/9134370.shtml?id=3842</a><br><br>
+79.多仓库协同仍靠约定而不是魔法<a href="https://product.pconline.com.cn/itbk/software/2026/0915/3003815.html?id=2493">product.pconline.com.cn/itbk/software/2026/0915/3003815.html?id=2493</a><br><br>
+<a href="https://m.bjsyqw.com/2026/0917/4576865.shtml?id=4455">m.bjsyqw.com/2026/0917/4576865.shtml?id=4455</a><br><br>
+95.智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<a href="https://product.pconline.com.cn/itbk/software/2026/0915/5525077.html?id=7462">product.pconline.com.cn/itbk/software/2026/0915/5525077.html?id=7462</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202609/17/content_76134.html">xywb.hj.cn/pad/con/202609/17/content_76134.html</a><br><br>
+45.安全默认值比新功能更重要<a href="https://mobile.pconline.com.cn/open/0915/4188078.html">mobile.pconline.com.cn/open/0915/4188078.html</a><br><br>
+<a href="https://product.pconline.com.cn/itbk/software/2026/0915/6445924.html">product.pconline.com.cn/itbk/software/2026/0915/6445924.html</a><br><br>
+68.前沿科技融合创新，AI + 量子 + 生物 + 航天，跨领域突破，产业变革加速。<a href="http://www.sjzdaily.com.cn/2026/09/17/75872.html?id=6177">www.sjzdaily.com.cn/2026/09/17/75872.html?id=6177</a><br><br>
+<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/72511.html">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/72511.html</a><br><br>
+95.小米 15 系列发布，澎湃芯片、AI 大模型、影像升级，性价比突出。<a href="https://news.bjsyqw.com/2026/0917/6257717.shtml?id=9054">news.bjsyqw.com/2026/0917/6257717.shtml?id=9054</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180986633.html?id=0815">www.pconline.com.cn/special/holiday/2026/0915/2180986633.html?id=0815</a><br><br>
+16.恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<a href="http://yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_61289.html">yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_61289.html</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_89607.htm?id=8187">epaper.632news.com/zzwb/html/2026-09/17/content_89607.htm?id=8187</a><br><br>
+59.兆易创新 NOR Flash 市占率全球第三，国产替代加速，工业 / 汽车场景放量。<a href="https://news.bjsyqw.com/2026/0917/5274532.shtml">news.bjsyqw.com/2026/0917/5274532.shtml</a><br><br>
+<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/63777.html?id=2496">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/63777.html?id=2496</a><br><br>
+27.低空经济试点城市扩容，低空飞行器商业化运营提速。<a href="https://m.bjsyqw.com/2026/0917/2088479.shtml">m.bjsyqw.com/2026/0917/2088479.shtml</a><br><br>
+<a href="https://m.bjsyqw.com/2026/0917/6866787.shtml">m.bjsyqw.com/2026/0917/6866787.shtml</a><br><br>
+31.中文技术内容分发渠道在变<a href="https://m.bjsyqw.com/2026/0917/1560426.shtml">m.bjsyqw.com/2026/0917/1560426.shtml</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/199574.shtml?id=9591">www.bjsyqw.com/jiaoyu/199574.shtml?id=9591</a><br><br>
+38.苹果 Vision Pro 量产，空间计算、AI 交互，高端 VR 市场突破。<a href="https://www.bjsyqw.com/jiaoyu/804106.shtml?id=3222">www.bjsyqw.com/jiaoyu/804106.shtml?id=3222</a><br><br>
+<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/73452.html?id=1927">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/73452.html?id=1927</a><br><br>
+53.同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<a href="https://rb.bjsyqw.com/html/2026-09/17/content_49877_35460052.htm?id=7009">rb.bjsyqw.com/html/2026-09/17/content_49877_35460052.htm?id=7009</a><br><br>
+<a href="https://rb.bjsyqw.com/html/2026-09/17/content_86034_54687199.htm?id=8640">rb.bjsyqw.com/html/2026-09/17/content_86034_54687199.htm?id=8640</a><br><br>
+06.德赛西威车载 AI 座舱市占率国内第一，高通 8295 芯片、大模型赋能。<a href="https://m.bjsyqw.com/2026/0917/2272984.shtml">m.bjsyqw.com/2026/0917/2272984.shtml</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180285979.html?id=6523">www.pconline.com.cn/special/holiday/2026/0915/2180285979.html?id=6523</a><br><br>
+07.桥梁智能监测系统投用，实时监测桥梁安全消除通行隐患。<a href="https://g.pconline.com.cn/nq/2026/0915/1784815.html?id=0664">g.pconline.com.cn/nq/2026/0915/1784815.html?id=0664</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_7118.html">www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_7118.html</a><br><br>
+25.检索增强仍是落地标配<a href="https://m.bjsyqw.com/2026/0917/3067004.shtml?id=7403">m.bjsyqw.com/2026/0917/3067004.shtml?id=7403</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0915/7312060.html">mobile.pconline.com.cn/open/0915/7312060.html</a><br><br>
+04.华泰证券 AI 风控系统商用，风险识别准确率提升，合规成本下降。<a href="https://auto.eastday.com/a/n260914111209735.html">auto.eastday.com/a/n260914111209735.html</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202609/17/content_73110.html?id=2260">xywb.hj.cn/pad/con/202609/17/content_73110.html?id=2260</a><br><br>
+30.智能体浏览器操作进入试验<a href="https://www.hj.cn/content/2026-09/17/content_66754.html?id=0080">www.hj.cn/content/2026-09/17/content_66754.html?id=0080</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0915/2970073.html?id=1810">g.pconline.com.cn/nq/2026/0915/2970073.html?id=1810</a><br><br>
+01.信托业务回归本源，聚焦实业投融资项目稳步发展。<a href="https://xyrb.hj.cn/pc/con/202609/17/content_95157.html?id=0561">xyrb.hj.cn/pc/con/202609/17/content_95157.html?id=0561</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_96418.htm?id=2538">epaper.632news.com/zzwb/html/2026-09/17/content_96418.htm?id=2538</a><br><br>
+32.工业润滑油需求回暖，制造业复工复产拉动耗材消费。<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_66207.htm?id=8656">epaper.632news.com/zzwb/html/2026-09/17/content_66207.htm?id=8656</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0917/6657023.shtml">news.bjsyqw.com/2026/0917/6657023.shtml</a><br><br>
+91.神舟二十三号船箭组合体转运至发射区，近日择机发射，空间站扩建。<a href="https://m.hj.cn/content/2026-09/17/content_99831.html?id=0997">m.hj.cn/content/2026-09/17/content_99831.html?id=0997</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_25901.htm">epaper.632news.com/zzwb/html/2026-09/17/content_25901.htm</a><br><br>
+88.爱奇艺 AI 内容审核、推荐、生成，降本增效，会员规模扩大。<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_60226_77221157.htm">bjrb.bjsyqw.com/html/2026-09/17/content_60226_77221157.htm</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_28096.htm?id=3537">epaper.632news.com/zzwb/html/2026-09/17/content_28096.htm?id=3537</a><br><br>
+57.日志与追踪成为必选项<a href="https://m.hj.cn/content/2026-09/17/content_41334.html">m.hj.cn/content/2026-09/17/content_41334.html</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202609/17/content_49483.html">xywb.hj.cn/pad/con/202609/17/content_49483.html</a><br><br>
+20.国内智能手机市场复苏，国产品牌高端化、AI 化，份额集中。<a href="https://xyrb.hj.cn/pc/con/202609/17/content_17035.html">xyrb.hj.cn/pc/con/202609/17/content_17035.html</a><br><br>
+<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_70979.html?id=3203">news.sjzdaily.com.cn/2026/09/17/wap_70979.html?id=3203</a><br><br>
+78.京东 AI 供应链、客服、推荐，降本增效，营收改善。<a href="https://www.hj.cn/content/2026-09/17/content_86152.html?id=4153">www.hj.cn/content/2026-09/17/content_86152.html?id=4153</a><br><br>
+<a href="https://www.hj.cn/content/2026-09/17/content_85821.html">www.hj.cn/content/2026-09/17/content_85821.html</a><br><br>
+05.出口退税政策优化，新能源、光伏、储能、AI 设备退税率提升。<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_70122.htm">epaper.632news.com/zzwb/html/2026-09/17/content_70122.htm</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_92297.htm">epaper.632news.com/zzwb/html/2026-09/17/content_92297.htm</a><br><br>
+71.财经资讯 AI 化，实时摘要、舆情分析、个股解读，用户体验优化。<a href="https://product.pconline.com.cn/itbk/software/2026/0915/4758184.html">product.pconline.com.cn/itbk/software/2026/0915/4758184.html</a><br><br>
+<a href="https://product.pconline.com.cn/itbk/software/2026/0915/1644946.html?id=4126">product.pconline.com.cn/itbk/software/2026/0915/1644946.html?id=4126</a><br><br>
+40.台积电 3nm AI 芯片量产，良率提升、成本下降，头部客户订单饱满。<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_93794_36131830.htm?id=2170">bjrb.bjsyqw.com/html/2026-09/17/content_93794_36131830.htm?id=2170</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202609/17/content_52680.html?id=6307">xywb.hj.cn/pad/con/202609/17/content_52680.html?id=6307</a><br><br>
+00.5 月 20 日国债期货小幅收涨，资金面宽松支撑债市震荡走强。<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/68936.html">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/68936.html</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/871562.shtml">www.bjsyqw.com/jiaoyu/871562.shtml</a><br><br>
+06.中移物联网 NB-IoT 芯片量产，低功耗、广覆盖，智慧城市场景放量。<a href="http://sjzrb.sjzdaily.com.cn/sjzrbpaper/pc/content/202609/17/content_37398.html?id=4776">sjzrb.sjzdaily.com.cn/sjzrbpaper/pc/content/202609/17/content_37398.html?id=4776</a><br><br>
+<a href="http://yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_68489.html?id=6888">yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_68489.html?id=6888</a><br><br>
+12.代码助手开始覆盖仓库级任务<a href="https://mini.eastday.com/nsa/2867040465839607924058.html">mini.eastday.com/nsa/2867040465839607924058.html</a><br><br>
+<a href="https://product.pconline.com.cn/itbk/software/2026/0915/4946677.html?id=4096">product.pconline.com.cn/itbk/software/2026/0915/4946677.html?id=4096</a><br><br>
+13.Mobileye EyeQ6 芯片商用，自动驾驶感知 + 决策，性价比突出。<a href="https://g.pconline.com.cn/nq/2026/0915/5571212.html">g.pconline.com.cn/nq/2026/0915/5571212.html</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202609/17/content_26012.html">xyrb.hj.cn/pc/con/202609/17/content_26012.html</a><br><br>
+97.宁德时代海外储能基地落地，德国、美国、匈牙利，配套新能源项目。<a href="https://xyrb.hj.cn/pc/con/202609/17/content_56849.html">xyrb.hj.cn/pc/con/202609/17/content_56849.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260914165140855.html?id=0609">auto.eastday.com/a/n260914165140855.html?id=0609</a><br><br>
+44.职业教育行业迎来政策利好，技能培训报名人数激增。<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_87193_56521916.htm">bjrb.bjsyqw.com/html/2026-09/17/content_87193_56521916.htm</a><br><br>
+<a href="https://m.bjsyqw.com/2026/0917/2513620.shtml">m.bjsyqw.com/2026/0917/2513620.shtml</a><br><br>
+11.工业包装材料价格下调，实体企业产品包装成本降低。<a href="https://product.pconline.com.cn/itbk/software/2026/0915/2365755.html">product.pconline.com.cn/itbk/software/2026/0915/2365755.html</a><br><br>
+<a href="https://video.eastday.com/a/f260914033519932947478.html?id=5820">video.eastday.com/a/f260914033519932947478.html?id=5820</a><br><br>
+69.数据中心绿色化转型，液冷、光伏、储能配套，PUE 值下降。<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_50706.htm">epaper.632news.com/zzwb/html/2026-09/17/content_50706.htm</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_2697.html?id=1208">www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_2697.html?id=1208</a><br><br>
+81.潮流玩具市场热度不减，潮玩收藏与日常消费双向发力。<a href="https://g.pconline.com.cn/nq/2026/0915/4567923.html">g.pconline.com.cn/nq/2026/0915/4567923.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260914044048098.html?id=5598">auto.eastday.com/a/n260914044048098.html?id=5598</a><br><br>
+17.4 月全国工业企业利润同比增 8.5%，盈利结构持续改善。<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_15745_84611117.htm?id=5088">bjrb.bjsyqw.com/html/2026-09/17/content_15745_84611117.htm?id=5088</a><br><br>
+<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/62470.html">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/62470.html</a><br><br>
+78.美国 API 原油库存大降 911 万桶，远超预期，油价短期获支撑。<a href="https://rb.bjsyqw.com/html/2026-09/17/content_58654_24672796.htm?id=2002">rb.bjsyqw.com/html/2026-09/17/content_58654_24672796.htm?id=2002</a><br><br>
+<a href="https://product.pconline.com.cn/itbk/software/2026/0915/1551346.html">product.pconline.com.cn/itbk/software/2026/0915/1551346.html</a><br><br>
+28.本地优先工具重新受关注<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_95455_79858002.htm">bjrb.bjsyqw.com/html/2026-09/17/content_95455_79858002.htm</a><br><br>
+<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_48975.html?id=2334">news.sjzdaily.com.cn/2026/09/17/wap_48975.html?id=2334</a><br><br>
+90.共享智能充电宝升级，快充大功率输出适配各类数码设备。<a href="https://news.bjsyqw.com/2026/0917/3802958.shtml?id=7391">news.bjsyqw.com/2026/0917/3802958.shtml?id=7391</a><br><br>
+<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_38495_44607487.htm">bjrb.bjsyqw.com/html/2026-09/17/content_38495_44607487.htm</a><br><br>
+19.评测集污染问题被重新提起<a href="http://www.sjzdaily.com.cn/2026/09/17/11564.html">www.sjzdaily.com.cn/2026/09/17/11564.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_9714.html">www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_9714.html</a><br><br>
+98.征信行业 AI 升级，信用评分、反欺诈、风控模型，精准度提升。<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180608957.html?id=2330">www.pconline.com.cn/special/holiday/2026/0915/2180608957.html?id=2330</a><br><br>
+<a href="https://auto.eastday.com/a/n260914005037723.html">auto.eastday.com/a/n260914005037723.html</a><br><br>
+03.银企对接活动密集开展，解决中小企业融资难题。<a href="https://mini.eastday.com/nsa/6533374341381800328908.html">mini.eastday.com/nsa/6533374341381800328908.html</a><br><br>
+<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/45285.html">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/45285.html</a><br><br>
+70.Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 AI 大模型。<a href="https://g.pconline.com.cn/nq/2026/0915/8170622.html?id=9130">g.pconline.com.cn/nq/2026/0915/8170622.html?id=9130</a><br><br>
+<a href="https://mini.eastday.com/nsa/3191214873686588404842.html">mini.eastday.com/nsa/3191214873686588404842.html</a><br><br>
+86.金砖国家 AI 合作扩容，技术研发、产业应用、人才交流协同。<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_71200_21141953.htm?id=5409">bjrb.bjsyqw.com/html/2026-09/17/content_71200_21141953.htm?id=5409</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_7674.html?id=0733">www.zzrbw.com/zzrbPaper/pad/con/202609/17/content_7674.html?id=0733</a><br><br>
+06.银行理财产品期限多元化，适配不同人群理财规划需求。<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_67918.htm?id=2064">epaper.632news.com/zzwb/html/2026-09/17/content_67918.htm?id=2064</a><br><br>
+<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_48565.html?id=4510">news.sjzdaily.com.cn/2026/09/17/wap_48565.html?id=4510</a><br><br>
+60.安全默认值比新功能更重要<a href="https://product.pconline.com.cn/itbk/software/2026/0915/8757251.html">product.pconline.com.cn/itbk/software/2026/0915/8757251.html</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0917/5538562.shtml">news.bjsyqw.com/2026/0917/5538562.shtml</a><br><br>
+52.开源模型推理成本继续下降<a href="https://xyrb.hj.cn/pc/con/202609/17/content_89467.html?id=3680">xyrb.hj.cn/pc/con/202609/17/content_89467.html?id=3680</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_15579.htm?id=4642">epaper.632news.com/zzwb/html/2026-09/17/content_15579.htm?id=4642</a><br><br>
+16.多仓库协同仍靠约定而不是魔法<a href="http://yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_84573.html">yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_84573.html</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202609/17/content_58491.html?id=7118">xyrb.hj.cn/pc/con/202609/17/content_58491.html?id=7118</a><br><br>
+98.出口退税政策优化，新能源、光伏、储能、AI 设备退税率提升。<a href="https://auto.eastday.com/a/n260914181217699.html?id=6713">auto.eastday.com/a/n260914181217699.html?id=6713</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0915/6676805.html?id=2184">g.pconline.com.cn/nq/2026/0915/6676805.html?id=2184</a><br><br>
+70.4 月全国工业企业利润同比增 8.5%，盈利结构持续改善。<a href="https://video.eastday.com/a/f260914042901842803718.html">video.eastday.com/a/f260914042901842803718.html</a><br><br>
+<a href="https://rb.bjsyqw.com/html/2026-09/17/content_89735_57663771.htm?id=6848">rb.bjsyqw.com/html/2026-09/17/content_89735_57663771.htm?id=6848</a><br><br>
+79.宁德时代海外储能基地落地，德国、美国、匈牙利，配套新能源项目。<a href="https://xywb.hj.cn/pad/con/202609/17/content_85065.html?id=2233">xywb.hj.cn/pad/con/202609/17/content_85065.html?id=2233</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202609/17/content_70204.html">xywb.hj.cn/pad/con/202609/17/content_70204.html</a><br><br>
+92.东方日升 HJT 电池量产，效率 26%，组件出口欧洲、拉美市场。<a href="https://www.hj.cn/content/2026-09/17/content_86152.html">www.hj.cn/content/2026-09/17/content_86152.html</a><br><br>
+<a href="https://video.eastday.com/a/f260914161727244364923.html?id=6388">video.eastday.com/a/f260914161727244364923.html?id=6388</a><br><br>
+13.航空客运票价回归合理区间，民航出行客流稳步恢复常态。<a href="https://www.bjsyqw.com/jiaoyu/542093.shtml?id=3633">www.bjsyqw.com/jiaoyu/542093.shtml?id=3633</a><br><br>
+<a href="https://auto.eastday.com/a/n260914235752011.html?id=1727">auto.eastday.com/a/n260914235752011.html?id=1727</a><br><br>
+38.智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<a href="https://news.bjsyqw.com/2026/0917/6819127.shtml">news.bjsyqw.com/2026/0917/6819127.shtml</a><br><br>
+<a href="http://www.sjzdaily.com.cn/2026/09/17/19318.html">www.sjzdaily.com.cn/2026/09/17/19318.html</a><br><br>
+33.Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 AI 大模型。<a href="https://product.pconline.com.cn/itbk/software/2026/0915/4379060.html?id=4660">product.pconline.com.cn/itbk/software/2026/0915/4379060.html?id=4660</a><br><br>
+<a href="http://www.sjzdaily.com.cn/2026/09/17/61756.html">www.sjzdaily.com.cn/2026/09/17/61756.html</a><br><br>
+30.同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<a href="https://rb.bjsyqw.com/html/2026-09/17/content_86504_18696809.htm?id=1898">rb.bjsyqw.com/html/2026-09/17/content_86504_18696809.htm?id=1898</a><br><br>
+<a href="https://mini.eastday.com/nsa/7552031669866452554872.html?id=8849">mini.eastday.com/nsa/7552031669866452554872.html?id=8849</a><br><br>
+61.评测集污染问题被重新提起<a href="http://yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_83008.html?id=4461">yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_83008.html?id=4461</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202609/17/content_89542.html?id=0259">xyrb.hj.cn/pc/con/202609/17/content_89542.html?id=0259</a><br><br>
+43.OPPO Find X8 系列迭代，马里亚纳影像芯片、AI 优化，高端市场发力。<a href="https://video.eastday.com/a/f260914094829729954721.html?id=4786">video.eastday.com/a/f260914094829729954721.html?id=4786</a><br><br>
+<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_64012.html">news.sjzdaily.com.cn/2026/09/17/wap_64012.html</a><br><br>
+58.钙钛矿电池效率突破 27%，南开大学团队成果发表《自然》。<a href="https://www.pconline.com.cn/special/holiday/2026/0915/2180888042.html">www.pconline.com.cn/special/holiday/2026/0915/2180888042.html</a><br><br>
+<a href="https://rb.bjsyqw.com/html/2026-09/17/content_35523_67788711.htm">rb.bjsyqw.com/html/2026-09/17/content_35523_67788711.htm</a><br><br>
+24.财经资讯 AI 化，实时摘要、舆情分析、个股解读，用户体验优化。<a href="https://g.pconline.com.cn/nq/2026/0915/7818208.html?id=2995">g.pconline.com.cn/nq/2026/0915/7818208.html?id=2995</a><br><br>
+<a href="https://product.pconline.com.cn/itbk/software/2026/0915/9691642.html">product.pconline.com.cn/itbk/software/2026/0915/9691642.html</a><br><br>
+66.三星 Galaxy Z Fold6 迭代，轻薄化、AI 优化，全球折叠市场主导。<a href="http://yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_64608.html">yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_64608.html</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202609/17/content_55599.html?id=9636">xyrb.hj.cn/pc/con/202609/17/content_55599.html?id=9636</a><br><br>
+56.韦尔股份 CMOS 图像传感器市占率提升，手机、车载双驱动。<a href="https://auto.eastday.com/a/n260914165140855.html">auto.eastday.com/a/n260914165140855.html</a><br><br>
+<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_47502.html">news.sjzdaily.com.cn/2026/09/17/wap_47502.html</a><br><br>
+74.华泰证券 AI 风控系统商用，风险识别准确率提升，合规成本下降。<a href="https://news.bjsyqw.com/2026/0917/5990389.shtml">news.bjsyqw.com/2026/0917/5990389.shtml</a><br><br>
+<a href="http://yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_52715.html">yzlnb.sjzdaily.com.cn/yzlnbpaper/pc/content/202609/17/content_52715.html</a><br><br>
+38.兆易创新 NOR Flash 市占率全球第三，国产替代加速，工业 / 汽车场景放量。<a href="https://g.pconline.com.cn/nq/2026/0915/7479670.html?id=8896">g.pconline.com.cn/nq/2026/0915/7479670.html?id=8896</a><br><br>
+<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/76512.html?id=6616">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/76512.html?id=6616</a><br><br>
+23.三星 S24 系列 AI 手机热销，Galaxy AI 2.0 赋能，全球份额稳定。<a href="https://www.hj.cn/content/2026-09/17/content_61729.html">www.hj.cn/content/2026-09/17/content_61729.html</a><br><br>
+<a href="http://www.sjzdaily.com.cn/2026/09/17/22421.html?id=1060">www.sjzdaily.com.cn/2026/09/17/22421.html?id=1060</a><br><br>
+97.日志与追踪成为必选项<a href="https://xyrb.hj.cn/pc/con/202609/17/content_57821.html?id=1638">xyrb.hj.cn/pc/con/202609/17/content_57821.html?id=1638</a><br><br>
+<a href="http://yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/74955.html">yzwb.sjzdaily.com.cn/yzwbpaper/pad/content/202609/17/74955.html</a><br><br>
+43.工业润滑油需求回暖，制造业复工复产拉动耗材消费。<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_22209.html?id=1796">news.sjzdaily.com.cn/2026/09/17/wap_22209.html?id=1796</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202609/17/content_84176.html">xyrb.hj.cn/pc/con/202609/17/content_84176.html</a><br><br>
+41.婚礼婚庆行业全面回暖，婚嫁相关消费市场迎来高峰期。<a href="https://m.bjsyqw.com/2026/0917/2236591.shtml">m.bjsyqw.com/2026/0917/2236591.shtml</a><br><br>
+<a href="https://m.bjsyqw.com/2026/0917/7381754.shtml">m.bjsyqw.com/2026/0917/7381754.shtml</a><br><br>
+42.共享智能充电宝升级，快充大功率输出适配各类数码设备。<a href="https://video.eastday.com/a/f260914143128946392622.html?id=6764">video.eastday.com/a/f260914143128946392622.html?id=6764</a><br><br>
+<a href="https://m.hj.cn/content/2026-09/17/content_84756.html?id=6817">m.hj.cn/content/2026-09/17/content_84756.html?id=6817</a><br><br>
+62.国内智能手机市场复苏，国产品牌高端化、AI 化，份额集中。<a href="https://rb.bjsyqw.com/html/2026-09/17/content_20758_28297547.htm?id=1636">rb.bjsyqw.com/html/2026-09/17/content_20758_28297547.htm?id=1636</a><br><br>
+<a href="https://video.eastday.com/a/f260914123502384835985.html?id=5123">video.eastday.com/a/f260914123502384835985.html?id=5123</a><br><br>
+41.中文技术内容分发渠道在变<a href="https://video.eastday.com/a/f260914153233807782393.html">video.eastday.com/a/f260914153233807782393.html</a><br><br>
+<a href="https://product.pconline.com.cn/itbk/software/2026/0915/8256775.html">product.pconline.com.cn/itbk/software/2026/0915/8256775.html</a><br><br>
+32.神舟二十三号船箭组合体转运至发射区，近日择机发射，空间站扩建。<a href="https://mobile.pconline.com.cn/open/0915/1889872.html?id=6460">mobile.pconline.com.cn/open/0915/1889872.html?id=6460</a><br><br>
+<a href="https://bjrb.bjsyqw.com/html/2026-09/17/content_57948_48161473.htm">bjrb.bjsyqw.com/html/2026-09/17/content_57948_48161473.htm</a><br><br>
+52.智能体浏览器操作进入试验<a href="https://m.hj.cn/content/2026-09/17/content_12719.html">m.hj.cn/content/2026-09/17/content_12719.html</a><br><br>
+<a href="https://m.bjsyqw.com/2026/0917/7638427.shtml">m.bjsyqw.com/2026/0917/7638427.shtml</a><br><br>
+24.恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<a href="https://m.bjsyqw.com/2026/0917/5821381.shtml">m.bjsyqw.com/2026/0917/5821381.shtml</a><br><br>
+<a href="https://rb.bjsyqw.com/html/2026-09/17/content_10616_12751591.htm">rb.bjsyqw.com/html/2026-09/17/content_10616_12751591.htm</a><br><br>
+06.大模型工具链本周观察<a href="https://auto.eastday.com/a/n260914101922244.html">auto.eastday.com/a/n260914101922244.html</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-09/17/content_27807.htm?id=7603">epaper.632news.com/zzwb/html/2026-09/17/content_27807.htm?id=7603</a><br><br>
+13.信托业务回归本源，聚焦实业投融资项目稳步发展。<a href="https://xywb.hj.cn/pad/con/202609/17/content_28993.html?id=6026">xywb.hj.cn/pad/con/202609/17/content_28993.html?id=6026</a><br><br>
+<a href="http://news.sjzdaily.com.cn/2026/09/17/wap_54478.html">news.sjzdaily.com.cn/2026/09/17/wap_54478.html</a><br><br>
+瀉縪吋藵笭峒炊薺靑儞巨偳咷樞恧濫哢麤禔漳嫿详髪橇津畅捈尫嬁篲髑鼖燯筰厸槰瑝慒篔拃羘飙尻鏽偿滀茸瑬玭米
