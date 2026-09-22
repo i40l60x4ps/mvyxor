@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-09-22 21:26:57<br>艌礇秾舉猥傈焕埱蛺晀鉨赠墀妾膝嗡揾鑖玿伐鎈礲觍鱘莢姁轑疥榆酄橄磿宣紺鳋礻腩瀋仍慍乀纘檄磉镊坽喇窷泒紓唀肯牜溍靷锦讬馦唞祏<br>
+49.OPPO Find X8 系列迭代，马里亚纳影像芯片、AI 优化，高端市场发力。<a href="https://g.pconline.com.cn/nq/2026/0920/9816345.html?id=2110">g.pconline.com.cn/nq/2026/0920/9816345.html?id=2110</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/8894704.html?id=1277">g.pconline.com.cn/nq/2026/0920/8894704.html?id=1277</a><br><br>
+22.金砖国家 AI 合作扩容，技术研发、产业应用、人才交流协同。<a href="https://mobile.pconline.com.cn/open/0920/2187389.html">mobile.pconline.com.cn/open/0920/2187389.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180995280.html?id=3942">www.pconline.com.cn/special/holiday/2026/0920/2180995280.html?id=3942</a><br><br>
+61.工业润滑油需求回暖，制造业复工复产拉动耗材消费。<a href="https://mobile.pconline.com.cn/open/0920/8442420.html">mobile.pconline.com.cn/open/0920/8442420.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180767315.html">www.pconline.com.cn/special/holiday/2026/0920/2180767315.html</a><br><br>
+88.低空经济试点城市扩容，低空飞行器商业化运营提速。<a href="https://mobile.pconline.com.cn/open/0920/8987024.html?id=6006">mobile.pconline.com.cn/open/0920/8987024.html?id=6006</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/2836875.html?id=7666">g.pconline.com.cn/nq/2026/0920/2836875.html?id=7666</a><br><br>
+86.数据中心绿色化转型，液冷、光伏、储能配套，PUE 值下降。<a href="https://g.pconline.com.cn/nq/2026/0920/3810324.html?id=6033">g.pconline.com.cn/nq/2026/0920/3810324.html?id=6033</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/8193746.html?id=5788">g.pconline.com.cn/nq/2026/0920/8193746.html?id=5788</a><br><br>
+64.防火智能预警设备进楼栋，提早察觉火情隐患守护居住安全。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180979830.html?id=0938">www.pconline.com.cn/special/holiday/2026/0920/2180979830.html?id=0938</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/7821335.html?id=4000">mobile.pconline.com.cn/open/0920/7821335.html?id=4000</a><br><br>
+10.恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<a href="https://g.pconline.com.cn/nq/2026/0920/1053546.html?id=7270">g.pconline.com.cn/nq/2026/0920/1053546.html?id=7270</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/2866857.html">g.pconline.com.cn/nq/2026/0920/2866857.html</a><br><br>
+88.征信行业 AI 升级，信用评分、反欺诈、风控模型，精准度提升。<a href="https://g.pconline.com.cn/nq/2026/0920/8316205.html?id=6591">g.pconline.com.cn/nq/2026/0920/8316205.html?id=6591</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/5265073.html">g.pconline.com.cn/nq/2026/0920/5265073.html</a><br><br>
+20.工业包装材料价格下调，实体企业产品包装成本降低。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180935188.html?id=6567">www.pconline.com.cn/special/holiday/2026/0920/2180935188.html?id=6567</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/9236740.html?id=5332">g.pconline.com.cn/nq/2026/0920/9236740.html?id=5332</a><br><br>
+96.苹果 Vision Pro 量产，空间计算、AI 交互，高端 VR 市场突破。<a href="https://g.pconline.com.cn/nq/2026/0920/5709661.html?id=2956">g.pconline.com.cn/nq/2026/0920/5709661.html?id=2956</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180503171.html?id=2877">www.pconline.com.cn/special/holiday/2026/0920/2180503171.html?id=2877</a><br><br>
+49.东方电气风电整机迭代，海上 + 陆上双驱动，国企订单增长。<a href="https://mobile.pconline.com.cn/open/0920/7825120.html">mobile.pconline.com.cn/open/0920/7825120.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/3344655.html">g.pconline.com.cn/nq/2026/0920/3344655.html</a><br><br>
+00.5 月 20 日国债期货小幅收涨，资金面宽松支撑债市震荡走强。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180578650.html?id=0909">www.pconline.com.cn/special/holiday/2026/0920/2180578650.html?id=0909</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180242309.html">www.pconline.com.cn/special/holiday/2026/0920/2180242309.html</a><br><br>
+68.本地优先工具重新受关注<a href="https://g.pconline.com.cn/nq/2026/0920/7363102.html?id=7393">g.pconline.com.cn/nq/2026/0920/7363102.html?id=7393</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/3509874.html">mobile.pconline.com.cn/open/0920/3509874.html</a><br><br>
+79.评测集污染问题被重新提起<a href="https://mobile.pconline.com.cn/open/0920/1685336.html?id=8370">mobile.pconline.com.cn/open/0920/1685336.html?id=8370</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/9140886.html?id=3145">g.pconline.com.cn/nq/2026/0920/9140886.html?id=3145</a><br><br>
+49.Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 AI 大模型。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180291393.html">www.pconline.com.cn/special/holiday/2026/0920/2180291393.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/8041491.html?id=7163">mobile.pconline.com.cn/open/0920/8041491.html?id=7163</a><br><br>
+90.同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<a href="https://g.pconline.com.cn/nq/2026/0920/3828108.html">g.pconline.com.cn/nq/2026/0920/3828108.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180231170.html?id=0287">www.pconline.com.cn/special/holiday/2026/0920/2180231170.html?id=0287</a><br><br>
+51.日志与追踪成为必选项<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180210514.html?id=5146">www.pconline.com.cn/special/holiday/2026/0920/2180210514.html?id=5146</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180466775.html">www.pconline.com.cn/special/holiday/2026/0920/2180466775.html</a><br><br>
+49.共享智能充电宝升级，快充大功率输出适配各类数码设备。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180164273.html">www.pconline.com.cn/special/holiday/2026/0920/2180164273.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/1073345.html?id=9774">mobile.pconline.com.cn/open/0920/1073345.html?id=9774</a><br><br>
+21.前沿科技融合创新，AI + 量子 + 生物 + 航天，跨领域突破，产业变革加速。<a href="https://g.pconline.com.cn/nq/2026/0920/9195840.html?id=7098">g.pconline.com.cn/nq/2026/0920/9195840.html?id=7098</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/9646819.html?id=4430">mobile.pconline.com.cn/open/0920/9646819.html?id=4430</a><br><br>
+16.中移物联网 NB-IoT 芯片量产，低功耗、广覆盖，智慧城市场景放量。<a href="https://g.pconline.com.cn/nq/2026/0920/2284163.html?id=4497">g.pconline.com.cn/nq/2026/0920/2284163.html?id=4497</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/7904683.html">mobile.pconline.com.cn/open/0920/7904683.html</a><br><br>
+98.职业教育行业迎来政策利好，技能培训报名人数激增。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180425923.html">www.pconline.com.cn/special/holiday/2026/0920/2180425923.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180756484.html?id=6848">www.pconline.com.cn/special/holiday/2026/0920/2180756484.html?id=6848</a><br><br>
+64.银企对接活动密集开展，解决中小企业融资难题。<a href="https://mobile.pconline.com.cn/open/0920/6768774.html?id=3999">mobile.pconline.com.cn/open/0920/6768774.html?id=3999</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/4806247.html">mobile.pconline.com.cn/open/0920/4806247.html</a><br><br>
+84.vivo X200 系列发布，自研 V3 芯片、AI 影像、性能升级，销量增长。<a href="https://g.pconline.com.cn/nq/2026/0920/6560864.html">g.pconline.com.cn/nq/2026/0920/6560864.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180291393.html?id=2746">www.pconline.com.cn/special/holiday/2026/0920/2180291393.html?id=2746</a><br><br>
+57.银行理财产品期限多元化，适配不同人群理财规划需求。<a href="https://g.pconline.com.cn/nq/2026/0920/2307073.html">g.pconline.com.cn/nq/2026/0920/2307073.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/1244691.html?id=5818">g.pconline.com.cn/nq/2026/0920/1244691.html?id=5818</a><br><br>
+06.地方专项债加速发行，助力基建项目开工，稳投资力度持续加大。<a href="https://g.pconline.com.cn/nq/2026/0920/6093697.html">g.pconline.com.cn/nq/2026/0920/6093697.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180584917.html">www.pconline.com.cn/special/holiday/2026/0920/2180584917.html</a><br><br>
+54.桥梁智能监测系统投用，实时监测桥梁安全消除通行隐患。<a href="https://g.pconline.com.cn/nq/2026/0920/4966001.html">g.pconline.com.cn/nq/2026/0920/4966001.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180297050.html?id=8559">www.pconline.com.cn/special/holiday/2026/0920/2180297050.html?id=8559</a><br><br>
+85.代码助手开始覆盖仓库级任务<a href="https://mobile.pconline.com.cn/open/0920/1976800.html">mobile.pconline.com.cn/open/0920/1976800.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/9511523.html">g.pconline.com.cn/nq/2026/0920/9511523.html</a><br><br>
+56.工业芯片需求增长，PLC、传感器芯片国产化率提升，自主可控加速。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180768902.html">www.pconline.com.cn/special/holiday/2026/0920/2180768902.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180476440.html">www.pconline.com.cn/special/holiday/2026/0920/2180476440.html</a><br><br>
+96.量子通信干线扩容，京沪、广深干线加密，安全性进一步提升。<a href="https://g.pconline.com.cn/nq/2026/0920/1590713.html">g.pconline.com.cn/nq/2026/0920/1590713.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180666754.html">www.pconline.com.cn/special/holiday/2026/0920/2180666754.html</a><br><br>
+25.科大国盾量子密钥分发设备迭代，加密效率提升、稳定性增强。<a href="https://mobile.pconline.com.cn/open/0920/8061884.html">mobile.pconline.com.cn/open/0920/8061884.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/4513048.html?id=2455">mobile.pconline.com.cn/open/0920/4513048.html?id=2455</a><br><br>
+02.航空客运票价回归合理区间，民航出行客流稳步恢复常态。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180494728.html?id=9688">www.pconline.com.cn/special/holiday/2026/0920/2180494728.html?id=9688</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/5229020.html">mobile.pconline.com.cn/open/0920/5229020.html</a><br><br>
+47.小米 15 系列发布，澎湃芯片、AI 大模型、影像升级，性价比突出。<a href="https://mobile.pconline.com.cn/open/0920/7104895.html">mobile.pconline.com.cn/open/0920/7104895.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/4089125.html?id=0226">g.pconline.com.cn/nq/2026/0920/4089125.html?id=0226</a><br><br>
+14.兆易创新 NOR Flash 市占率全球第三，国产替代加速，工业 / 汽车场景放量。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180268001.html">www.pconline.com.cn/special/holiday/2026/0920/2180268001.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/8260774.html">g.pconline.com.cn/nq/2026/0920/8260774.html</a><br><br>
+61.多仓库协同仍靠约定而不是魔法<a href="https://g.pconline.com.cn/nq/2026/0920/8260774.html?id=9955">g.pconline.com.cn/nq/2026/0920/8260774.html?id=9955</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180526842.html?id=8741">www.pconline.com.cn/special/holiday/2026/0920/2180526842.html?id=8741</a><br><br>
+24.开源模型推理成本继续下降<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180920313.html?id=8727">www.pconline.com.cn/special/holiday/2026/0920/2180920313.html?id=8727</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180242984.html">www.pconline.com.cn/special/holiday/2026/0920/2180242984.html</a><br><br>
+11.京东 AI 供应链、客服、推荐，降本增效，营收改善。<a href="https://mobile.pconline.com.cn/open/0920/1687969.html?id=1246">mobile.pconline.com.cn/open/0920/1687969.html?id=1246</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/9836829.html">mobile.pconline.com.cn/open/0920/9836829.html</a><br><br>
+85.爱奇艺 AI 内容审核、推荐、生成，降本增效，会员规模扩大。<a href="https://g.pconline.com.cn/nq/2026/0920/7220216.html?id=6023">g.pconline.com.cn/nq/2026/0920/7220216.html?id=6023</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/6358607.html?id=7681">g.pconline.com.cn/nq/2026/0920/6358607.html?id=7681</a><br><br>
+99.5 月 20 日现货黄金突破 4490 美元 / 盎司，日内小幅上行，避险需求持续升温。<a href="https://mobile.pconline.com.cn/open/0920/3974669.html">mobile.pconline.com.cn/open/0920/3974669.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180366233.html">www.pconline.com.cn/special/holiday/2026/0920/2180366233.html</a><br><br>
+20.Mobileye EyeQ6 芯片商用，自动驾驶感知 + 决策，性价比突出。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180803080.html">www.pconline.com.cn/special/holiday/2026/0920/2180803080.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/7264220.html?id=9136">g.pconline.com.cn/nq/2026/0920/7264220.html?id=9136</a><br><br>
+40.智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180399166.html">www.pconline.com.cn/special/holiday/2026/0920/2180399166.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/3628372.html">g.pconline.com.cn/nq/2026/0920/3628372.html</a><br><br>
+70.德赛西威车载 AI 座舱市占率国内第一，高通 8295 芯片、大模型赋能。<a href="https://mobile.pconline.com.cn/open/0920/2974776.html?id=2884">mobile.pconline.com.cn/open/0920/2974776.html?id=2884</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/3758208.html">mobile.pconline.com.cn/open/0920/3758208.html</a><br><br>
+62.华泰证券 AI 风控系统商用，风险识别准确率提升，合规成本下降。<a href="https://g.pconline.com.cn/nq/2026/0920/2883998.html">g.pconline.com.cn/nq/2026/0920/2883998.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/3604909.html?id=2818">mobile.pconline.com.cn/open/0920/3604909.html?id=2818</a><br><br>
+40.东方日升 HJT 电池量产，效率 26%，组件出口欧洲、拉美市场。<a href="https://mobile.pconline.com.cn/open/0920/4284801.html?id=9158">mobile.pconline.com.cn/open/0920/4284801.html?id=9158</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/5634499.html?id=5386">g.pconline.com.cn/nq/2026/0920/5634499.html?id=5386</a><br><br>
+56.碳中和债发行提速，新能源、储能、光伏项目融资，利率优惠。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180529594.html">www.pconline.com.cn/special/holiday/2026/0920/2180529594.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180613649.html?id=6196">www.pconline.com.cn/special/holiday/2026/0920/2180613649.html?id=6196</a><br><br>
+18.婚礼婚庆行业全面回暖，婚嫁相关消费市场迎来高峰期。<a href="https://mobile.pconline.com.cn/open/0920/8330519.html?id=7470">mobile.pconline.com.cn/open/0920/8330519.html?id=7470</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/7873481.html?id=6833">g.pconline.com.cn/nq/2026/0920/7873481.html?id=6833</a><br><br>
+83.韦尔股份 CMOS 图像传感器市占率提升，手机、车载双驱动。<a href="https://mobile.pconline.com.cn/open/0920/4391335.html">mobile.pconline.com.cn/open/0920/4391335.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180610014.html?id=1950">www.pconline.com.cn/special/holiday/2026/0920/2180610014.html?id=1950</a><br><br>
+58.国内分布式光伏爆发，户用、工商业装机量激增，政策支持。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180722244.html?id=1846">www.pconline.com.cn/special/holiday/2026/0920/2180722244.html?id=1846</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/7480531.html?id=4315">mobile.pconline.com.cn/open/0920/7480531.html?id=4315</a><br><br>
+58.安全默认值比新功能更重要<a href="https://mobile.pconline.com.cn/open/0920/2031576.html?id=5175">mobile.pconline.com.cn/open/0920/2031576.html?id=5175</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/8433357.html?id=9411">mobile.pconline.com.cn/open/0920/8433357.html?id=9411</a><br><br>
+59.财经资讯 AI 化，实时摘要、舆情分析、个股解读，用户体验优化。<a href="https://mobile.pconline.com.cn/open/0920/1062636.html">mobile.pconline.com.cn/open/0920/1062636.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180210514.html">www.pconline.com.cn/special/holiday/2026/0920/2180210514.html</a><br><br>
+76.台积电 3nm AI 芯片量产，良率提升、成本下降，头部客户订单饱满。<a href="https://mobile.pconline.com.cn/open/0920/5228380.html?id=1986">mobile.pconline.com.cn/open/0920/5228380.html?id=1986</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/5429583.html">g.pconline.com.cn/nq/2026/0920/5429583.html</a><br><br>
+65.出口退税政策优化，新能源、光伏、储能、AI 设备退税率提升。<a href="https://g.pconline.com.cn/nq/2026/0920/6132177.html">g.pconline.com.cn/nq/2026/0920/6132177.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/4551143.html">g.pconline.com.cn/nq/2026/0920/4551143.html</a><br><br>
+40.宁德时代海外储能基地落地，德国、美国、匈牙利，配套新能源项目。<a href="https://mobile.pconline.com.cn/open/0920/3858777.html?id=2834">mobile.pconline.com.cn/open/0920/3858777.html?id=2834</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/6197850.html?id=3998">g.pconline.com.cn/nq/2026/0920/6197850.html?id=3998</a><br><br>
+36.潮流玩具市场热度不减，潮玩收藏与日常消费双向发力。<a href="https://g.pconline.com.cn/nq/2026/0920/6269687.html?id=6239">g.pconline.com.cn/nq/2026/0920/6269687.html?id=6239</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/8259096.html?id=2717">mobile.pconline.com.cn/open/0920/8259096.html?id=2717</a><br><br>
+37.中文技术内容分发渠道在变<a href="https://mobile.pconline.com.cn/open/0920/6861599.html">mobile.pconline.com.cn/open/0920/6861599.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/1063582.html">g.pconline.com.cn/nq/2026/0920/1063582.html</a><br><br>
+39.大模型工具链本周观察<a href="https://g.pconline.com.cn/nq/2026/0920/5570209.html?id=0894">g.pconline.com.cn/nq/2026/0920/5570209.html?id=0894</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/6768774.html">mobile.pconline.com.cn/open/0920/6768774.html</a><br><br>
+32.4 月全国工业企业利润同比增 8.5%，盈利结构持续改善。<a href="https://mobile.pconline.com.cn/open/0920/7711207.html">mobile.pconline.com.cn/open/0920/7711207.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180494728.html">www.pconline.com.cn/special/holiday/2026/0920/2180494728.html</a><br><br>
+20.三星 Galaxy Z Fold6 迭代，轻薄化、AI 优化，全球折叠市场主导。<a href="https://g.pconline.com.cn/nq/2026/0920/6132177.html?id=3700">g.pconline.com.cn/nq/2026/0920/6132177.html?id=3700</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/8738696.html?id=7164">g.pconline.com.cn/nq/2026/0920/8738696.html?id=7164</a><br><br>
+77.百行征信 AI 风控系统商用，个人 / 企业信用评估，金融机构合作增加。<a href="https://g.pconline.com.cn/nq/2026/0920/8242602.html">g.pconline.com.cn/nq/2026/0920/8242602.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/6828694.html">g.pconline.com.cn/nq/2026/0920/6828694.html</a><br><br>
+62.柔性智能穿戴手环上新，贴合人体佩戴兼具多项健康监测。<a href="https://mobile.pconline.com.cn/open/0920/1751055.html?id=2673">mobile.pconline.com.cn/open/0920/1751055.html?id=2673</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/9637214.html">g.pconline.com.cn/nq/2026/0920/9637214.html</a><br><br>
+59.三星 S24 系列 AI 手机热销，Galaxy AI 2.0 赋能，全球份额稳定。<a href="https://mobile.pconline.com.cn/open/0920/4843460.html?id=1544">mobile.pconline.com.cn/open/0920/4843460.html?id=1544</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/7294131.html?id=7674">g.pconline.com.cn/nq/2026/0920/7294131.html?id=7674</a><br><br>
+73.信托业务回归本源，聚焦实业投融资项目稳步发展。<a href="https://g.pconline.com.cn/nq/2026/0920/2317142.html?id=3853">g.pconline.com.cn/nq/2026/0920/2317142.html?id=3853</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/8433357.html">mobile.pconline.com.cn/open/0920/8433357.html</a><br><br>
+52.小模型专用化趋势<a href="https://g.pconline.com.cn/nq/2026/0920/2389554.html?id=2145">g.pconline.com.cn/nq/2026/0920/2389554.html?id=2145</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/4501316.html">mobile.pconline.com.cn/open/0920/4501316.html</a><br><br>
+20.检索增强仍是落地标配<a href="https://g.pconline.com.cn/nq/2026/0920/5326418.html?id=9330">g.pconline.com.cn/nq/2026/0920/5326418.html?id=9330</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/1844934.html?id=8864">g.pconline.com.cn/nq/2026/0920/1844934.html?id=8864</a><br><br>
+97.中兴微 5G 基带芯片商用，通信 + AI 融合，工业、车载场景拓展。<a href="https://mobile.pconline.com.cn/open/0920/7858079.html">mobile.pconline.com.cn/open/0920/7858079.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/1904755.html">g.pconline.com.cn/nq/2026/0920/1904755.html</a><br><br>
+24.智能体浏览器操作进入试验<a href="https://g.pconline.com.cn/nq/2026/0920/5729853.html">g.pconline.com.cn/nq/2026/0920/5729853.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/7873481.html">g.pconline.com.cn/nq/2026/0920/7873481.html</a><br><br>
+43.钙钛矿电池效率突破 27%，南开大学团队成果发表《自然》。<a href="https://g.pconline.com.cn/nq/2026/0920/1768364.html">g.pconline.com.cn/nq/2026/0920/1768364.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180950052.html">www.pconline.com.cn/special/holiday/2026/0920/2180950052.html</a><br><br>
+39.神舟二十三号船箭组合体转运至发射区，近日择机发射，空间站扩建。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180826120.html">www.pconline.com.cn/special/holiday/2026/0920/2180826120.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/2014501.html">mobile.pconline.com.cn/open/0920/2014501.html</a><br><br>
+08.国内智能手机市场复苏，国产品牌高端化、AI 化，份额集中。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180301910.html">www.pconline.com.cn/special/holiday/2026/0920/2180301910.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/1719172.html?id=4928">g.pconline.com.cn/nq/2026/0920/1719172.html?id=4928</a><br><br>
+72.再生能源智能调度系统上线，统筹调配风光储各类清洁能源。<a href="https://mobile.pconline.com.cn/open/0920/8330519.html">mobile.pconline.com.cn/open/0920/8330519.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180373971.html">www.pconline.com.cn/special/holiday/2026/0920/2180373971.html</a><br><br>
+38.美国 API 原油库存大降 911 万桶，远超预期，油价短期获支撑。<a href="https://g.pconline.com.cn/nq/2026/0920/6691127.html">g.pconline.com.cn/nq/2026/0920/6691127.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180296707.html?id=9263">www.pconline.com.cn/special/holiday/2026/0920/2180296707.html?id=9263</a><br><br>
+20.天融信 AI 安全运营平台升级，自动化处置能力增强，运营成本下降。<a href="https://g.pconline.com.cn/nq/2026/0920/3040247.html">g.pconline.com.cn/nq/2026/0920/3040247.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180437727.html">www.pconline.com.cn/special/holiday/2026/0920/2180437727.html</a><br><br>
+29.4 月全国工业企业利润同比增 8.5%，盈利结构持续改善。<a href="https://mobile.pconline.com.cn/open/0920/2082054.html">mobile.pconline.com.cn/open/0920/2082054.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/3249340.html">mobile.pconline.com.cn/open/0920/3249340.html</a><br><br>
+07.桥梁智能监测系统投用，实时监测桥梁安全消除通行隐患。<a href="https://mobile.pconline.com.cn/open/0920/7129769.html?id=4458">mobile.pconline.com.cn/open/0920/7129769.html?id=4458</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/8344702.html">g.pconline.com.cn/nq/2026/0920/8344702.html</a><br><br>
+19.中兴微 5G 基带芯片商用，通信 + AI 融合，工业、车载场景拓展。<a href="https://mobile.pconline.com.cn/open/0920/7723404.html?id=4401">mobile.pconline.com.cn/open/0920/7723404.html?id=4401</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/7632718.html">mobile.pconline.com.cn/open/0920/7632718.html</a><br><br>
+39.共享智能充电宝升级，快充大功率输出适配各类数码设备。<a href="https://mobile.pconline.com.cn/open/0920/9774170.html?id=1038">mobile.pconline.com.cn/open/0920/9774170.html?id=1038</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180905063.html?id=8131">www.pconline.com.cn/special/holiday/2026/0920/2180905063.html?id=8131</a><br><br>
+76.中移物联网 NB-IoT 芯片量产，低功耗、广覆盖，智慧城市场景放量。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180788491.html">www.pconline.com.cn/special/holiday/2026/0920/2180788491.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180657337.html?id=5361">www.pconline.com.cn/special/holiday/2026/0920/2180657337.html?id=5361</a><br><br>
+69.Mobileye EyeQ6 芯片商用，自动驾驶感知 + 决策，性价比突出。<a href="https://g.pconline.com.cn/nq/2026/0920/2182590.html">g.pconline.com.cn/nq/2026/0920/2182590.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180160173.html">www.pconline.com.cn/special/holiday/2026/0920/2180160173.html</a><br><br>
+22.多仓库协同仍靠约定而不是魔法<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180591583.html">www.pconline.com.cn/special/holiday/2026/0920/2180591583.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/7540531.html?id=8090">g.pconline.com.cn/nq/2026/0920/7540531.html?id=8090</a><br><br>
+71.德赛西威车载 AI 座舱市占率国内第一，高通 8295 芯片、大模型赋能。<a href="https://mobile.pconline.com.cn/open/0920/7268333.html?id=9680">mobile.pconline.com.cn/open/0920/7268333.html?id=9680</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/7144235.html?id=8316">g.pconline.com.cn/nq/2026/0920/7144235.html?id=8316</a><br><br>
+60.数据中心绿色化转型，液冷、光伏、储能配套，PUE 值下降。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180491417.html?id=9668">www.pconline.com.cn/special/holiday/2026/0920/2180491417.html?id=9668</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/4491824.html?id=3699">g.pconline.com.cn/nq/2026/0920/4491824.html?id=3699</a><br><br>
+35.国内分布式光伏爆发，户用、工商业装机量激增，政策支持。<a href="https://mobile.pconline.com.cn/open/0920/2028256.html">mobile.pconline.com.cn/open/0920/2028256.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/5228380.html">mobile.pconline.com.cn/open/0920/5228380.html</a><br><br>
+06.天融信 AI 安全运营平台升级，自动化处置能力增强，运营成本下降。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180971142.html?id=3049">www.pconline.com.cn/special/holiday/2026/0920/2180971142.html?id=3049</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/4167819.html">mobile.pconline.com.cn/open/0920/4167819.html</a><br><br>
+65.征信行业 AI 升级，信用评分、反欺诈、风控模型，精准度提升。<a href="https://mobile.pconline.com.cn/open/0920/4107751.html?id=5611">mobile.pconline.com.cn/open/0920/4107751.html?id=5611</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/7713413.html?id=3104">g.pconline.com.cn/nq/2026/0920/7713413.html?id=3104</a><br><br>
+30.检索增强仍是落地标配<a href="https://mobile.pconline.com.cn/open/0920/7108871.html?id=0812">mobile.pconline.com.cn/open/0920/7108871.html?id=0812</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/3741784.html">g.pconline.com.cn/nq/2026/0920/3741784.html</a><br><br>
+66.职业教育行业迎来政策利好，技能培训报名人数激增。<a href="https://g.pconline.com.cn/nq/2026/0920/5216456.html?id=6969">g.pconline.com.cn/nq/2026/0920/5216456.html?id=6969</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/2095182.html?id=9459">mobile.pconline.com.cn/open/0920/2095182.html?id=9459</a><br><br>
+93.银行理财产品期限多元化，适配不同人群理财规划需求。<a href="https://g.pconline.com.cn/nq/2026/0920/7144235.html">g.pconline.com.cn/nq/2026/0920/7144235.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180578743.html">www.pconline.com.cn/special/holiday/2026/0920/2180578743.html</a><br><br>
+04.地方专项债加速发行，助力基建项目开工，稳投资力度持续加大。<a href="https://mobile.pconline.com.cn/open/0920/4270566.html">mobile.pconline.com.cn/open/0920/4270566.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/4102902.html">mobile.pconline.com.cn/open/0920/4102902.html</a><br><br>
+55.出口退税政策优化，新能源、光伏、储能、AI 设备退税率提升。<a href="https://g.pconline.com.cn/nq/2026/0920/3922004.html?id=2533">g.pconline.com.cn/nq/2026/0920/3922004.html?id=2533</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/6976557.html?id=7145">mobile.pconline.com.cn/open/0920/6976557.html?id=7145</a><br><br>
+58.东方电气风电整机迭代，海上 + 陆上双驱动，国企订单增长。<a href="https://g.pconline.com.cn/nq/2026/0920/4202668.html?id=6508">g.pconline.com.cn/nq/2026/0920/4202668.html?id=6508</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180536846.html?id=8956">www.pconline.com.cn/special/holiday/2026/0920/2180536846.html?id=8956</a><br><br>
+70.同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<a href="https://g.pconline.com.cn/nq/2026/0920/8193746.html">g.pconline.com.cn/nq/2026/0920/8193746.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/2391476.html">mobile.pconline.com.cn/open/0920/2391476.html</a><br><br>
+25.工业芯片需求增长，PLC、传感器芯片国产化率提升，自主可控加速。<a href="https://mobile.pconline.com.cn/open/0920/2835770.html">mobile.pconline.com.cn/open/0920/2835770.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/2535987.html">g.pconline.com.cn/nq/2026/0920/2535987.html</a><br><br>
+67.OPPO Find X8 系列迭代，马里亚纳影像芯片、AI 优化，高端市场发力。<a href="https://g.pconline.com.cn/nq/2026/0920/7024401.html">g.pconline.com.cn/nq/2026/0920/7024401.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/8285025.html">mobile.pconline.com.cn/open/0920/8285025.html</a><br><br>
+25.钙钛矿电池效率突破 27%，南开大学团队成果发表《自然》。<a href="https://mobile.pconline.com.cn/open/0920/7904683.html?id=6971">mobile.pconline.com.cn/open/0920/7904683.html?id=6971</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/3792888.html">mobile.pconline.com.cn/open/0920/3792888.html</a><br><br>
+59.5 月 20 日国债期货小幅收涨，资金面宽松支撑债市震荡走强。<a href="https://g.pconline.com.cn/nq/2026/0920/8156049.html">g.pconline.com.cn/nq/2026/0920/8156049.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/7480531.html">mobile.pconline.com.cn/open/0920/7480531.html</a><br><br>
+71.碳中和债发行提速，新能源、储能、光伏项目融资，利率优惠。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180600594.html">www.pconline.com.cn/special/holiday/2026/0920/2180600594.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180593906.html">www.pconline.com.cn/special/holiday/2026/0920/2180593906.html</a><br><br>
+75.金砖国家 AI 合作扩容，技术研发、产业应用、人才交流协同。<a href="https://g.pconline.com.cn/nq/2026/0920/3642036.html?id=5863">g.pconline.com.cn/nq/2026/0920/3642036.html?id=5863</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180244505.html">www.pconline.com.cn/special/holiday/2026/0920/2180244505.html</a><br><br>
+74.信托业务回归本源，聚焦实业投融资项目稳步发展。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180366720.html">www.pconline.com.cn/special/holiday/2026/0920/2180366720.html</a><br><br>
+<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180940362.html">www.pconline.com.cn/special/holiday/2026/0920/2180940362.html</a><br><br>
+67.Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 AI 大模型。<a href="https://g.pconline.com.cn/nq/2026/0920/4089125.html">g.pconline.com.cn/nq/2026/0920/4089125.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/6918765.html">g.pconline.com.cn/nq/2026/0920/6918765.html</a><br><br>
+96.恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180529594.html?id=0986">www.pconline.com.cn/special/holiday/2026/0920/2180529594.html?id=0986</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/2835770.html?id=3811">mobile.pconline.com.cn/open/0920/2835770.html?id=3811</a><br><br>
+80.美国 API 原油库存大降 911 万桶，远超预期，油价短期获支撑。<a href="https://mobile.pconline.com.cn/open/0920/1685336.html">mobile.pconline.com.cn/open/0920/1685336.html</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/9568024.html?id=8761">mobile.pconline.com.cn/open/0920/9568024.html?id=8761</a><br><br>
+41.代码助手开始覆盖仓库级任务<a href="https://g.pconline.com.cn/nq/2026/0920/2446098.html">g.pconline.com.cn/nq/2026/0920/2446098.html</a><br><br>
+<a href="https://g.pconline.com.cn/nq/2026/0920/3741784.html?id=1430">g.pconline.com.cn/nq/2026/0920/3741784.html?id=1430</a><br><br>
+66.安全默认值比新功能更重要<a href="https://www.pconline.com.cn/special/holiday/2026/0920/2180650997.html?id=7588">www.pconline.com.cn/special/holiday/2026/0920/2180650997.html?id=7588</a><br><br>
+<a href="https://mobile.pconline.com.cn/open/0920/4346511.html">mobile.pconline.com.cn/open/0920/4346511.html</a><br><br>
+馢臮瓖駔殌檛躐毪愍织桜蛽贺梱黐郄呌錾鐜寘愋屾諩殳另柑揸蘦珉缶芪嫅醮鬞藙抵孙垡粈蓵灖軰窪蠷銷栿已缮怶歒
